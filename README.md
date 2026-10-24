@@ -1,5 +1,5 @@
 <p align="center">
-<img width=300px alt="1" src="https://file.garden/afMNaszj4BOnPmsW/other/22.png"/> <br>
+<img width=350px alt="1" src="https://file.garden/afMNaszj4BOnPmsW/other/22.png"/> <br>
 </p>
 <p align="center">
   «&nbsp;&nbsp;&nbsp;Together, you and I will cover </br>this land in the blood of sinners.&nbsp;&nbsp;»<br><br>
